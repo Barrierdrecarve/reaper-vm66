@@ -1,4 +1,4 @@
-# 
+# Nouveau DaVinci Resolve pour PC scripts est le meilleur DaVinci Resolve pour PC scripts avec montage multistate et ralenti. Sécurisé, fiable et optimisé pour des performances
 
 
 
